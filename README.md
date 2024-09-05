@@ -1,0 +1,1 @@
+# Shashkov-A.A._Algoritmization
